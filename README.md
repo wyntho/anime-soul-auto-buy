@@ -1,0 +1,1 @@
+# anime-soul-auto-buy
